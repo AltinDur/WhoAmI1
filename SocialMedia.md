@@ -1,4 +1,4 @@
  # ADD ME 
 
- [www.linkedin.com/in/altin-durmishi-9226641a2]
+ www.linkedin.com/in/altin-durmishi-9226641a2
 
